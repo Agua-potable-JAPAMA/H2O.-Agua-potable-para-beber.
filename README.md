@@ -1,0 +1,2 @@
+# H2O.-Agua-potable-para-beber.
+Repositorio que tratará planes de juntas y proyectos sobre el agua potable en todo el estado de Sinaloa empezando por la ciudad de Los Mochis del municipio de Ahome.  Sometiéndose a  aceptación es presupuestales, de posiciones laboral y de barato de costes en cada recibo del mes y de dos meses según cuál sea su cazo para que todas nuestras familias sean felices con los servicios otorgados.
